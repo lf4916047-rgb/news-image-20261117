@@ -68,15 +68,27 @@ turned out to belong to another day (the Vulcan rocket failure of
   divisions" (17 Nov 2026); Reuters reporting carried by Premium
   Times and AIT (17 Nov 2026); RNZ World headline (17 Nov 2026).
 
-## 6. Robert Pattinson named the new James Bond (culture)
+## 6. India beat Pakistan in the SAFF Championship final (sport)
 
-- Amazon MGM Studios named British actor Robert Pattinson as the
-  new James Bond, succeeding Daniel Craig. Denis Villeneuve will
-  direct the 26th Bond film; Pattinson called the role "the honour
-  of a lifetime".
-- The announcement was made on Monday 16 November US/UK time, which
-  was already 17 November across Asia-Pacific time zones, and it led
-  entertainment coverage worldwide throughout 17 November.
-- Sources: CNN (16–17 Nov 2026); Al Jazeera (16 Nov 2026); USA
-  Today (16 Nov 2026); Indian Express (17 Nov 2026); Dawn and RNZ
-  front pages of 17 Nov 2026.
+- India came from behind to beat Pakistan 2–1 in the SAFF
+  Championship final at the National Stadium in Dhaka on Tuesday
+  17 November 2026, a record-extending 10th SAFF title and their
+  third consecutive crown.
+- Pakistan led through Alamgir Ghazi in first-half stoppage time
+  (45+1'). Pakistan's Junaid Shah was sent off after a VAR review
+  early in the second half; Suhail Ahmad Bhat equalised on the
+  hour, and Sandip Mandi headed the winner in the 88th minute from
+  Abdul Rabeeh's corner. It was Pakistan's first SAFF final, and
+  their players gave the champions a guard of honour afterwards.
+- Sources: Al Jazeera live blog, "India vs Pakistan: SAFF
+  Championship final" (17 Nov 2026); India TV News live updates
+  (17 Nov 2026); News18 live blog (17 Nov 2026); Onmanorama,
+  "India beat Pakistan 2-1 to clinch record 10th SAFF Championship
+  title" (17 Nov 2026); Times Now live blog (17 Nov 2026);
+  NDTV Sports (17–18 Nov 2026).
+- Swap note: this story replaces the Robert Pattinson / James Bond
+  casting item used in the poster's first version. The Bond
+  announcement was made on Monday 16 November US/UK time (already
+  17 November in Asia-Pacific), whereas the SAFF final was played
+  on 17 November itself and reported the same day by every outlet
+  above — the less ambiguous fit for the day's front page.
